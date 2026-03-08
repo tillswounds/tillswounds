@@ -1,5 +1,5 @@
 read/int w me!!
-ׂ╰┈➤https://no-1tillglazer.straw.page           
+ׂ╰┈➤https://onigirimiyaa.straw.page/
 **ೃ༄
 
 
