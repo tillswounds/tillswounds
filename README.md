@@ -1,5 +1,5 @@
 read/int w me!!
-ׂ╰┈➤https://onigirimiyaa.straw.page/
+ׂ╰┈➤ https://osasmemory.straw.page
 **ೃ༄
 
 
